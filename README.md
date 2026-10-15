@@ -1,1 +1,0 @@
-# Game-ular-tangga-percobaan
